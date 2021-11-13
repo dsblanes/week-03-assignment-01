@@ -1,0 +1,3 @@
+My name is Daniel Blanes, I have been involved in the tech industry for over 20 years. Prior to my web development career, I was a composer, music producer, and DJ with recordings released by Kaustic Records, Global Popstar Records, Priority  Records and Virgin International. My music has been featured in Jane Magazine, BBC London, The Fan Soundtrack, ESPN, and live sporting events. In my free-time, I enjoy playing the acoustic guitar and am always down for an old country or bluegrass jam. If you would like to hear some music please visit my Soundcloud profile here: https://soundcloud.com/user-619816829-538195604
+
+I am employed full time, and study Information Technology and Business Management at Loyola University Chicago.
